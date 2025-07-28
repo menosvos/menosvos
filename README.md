@@ -12,4 +12,4 @@
 
 <img src= "https://files.catbox.moe/63dhwz.jpg" width="ancho" height="alto"/>
 
-𝖺𝗇𝖽 𝗂 𝖽𝗈𝗇'𝗍 𝗉𝗅𝖺𝗒 𝖺𝖻𝗍 𝗆𝗒 𝖻𝖿𝖿 𝗂 𝗅𝗈𝗏𝖾 𝗁𝗂𝗆 
+@rottennlydead forevermore
